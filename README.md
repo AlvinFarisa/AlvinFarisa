@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AlvinFarisa
-- 👀 I’m love to ghibah and julidin some people
+- 👀 I like playing games and music
 - 🌱 I’m currently learning python
 - 💞️ I lived in Wonosobo since 2001
 - 📫 U can follow my ig account @apinlzrd
